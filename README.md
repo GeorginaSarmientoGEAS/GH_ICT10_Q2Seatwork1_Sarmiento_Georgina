@@ -1,1 +1,1 @@
-# Campus_ICT10_Q2Seatwork1_Sarmiento_Georgina
+# GH_ICT10_Q2Seatwork1_Sarmiento_Georgina
